@@ -1,5 +1,6 @@
 # Etrade
 Provide a description of the incident and how you were victimized. Provide information not captured elsewhere in this complaint form.
+
 Etrade "said" they removed the restrictions but they left the restrictions on after we had a 3 way conversation with Capital One to determine that the money I sent them was from a savings account at Capital One. I am spending the money when they lift the restrictions (some not all) I was at Wal-Mart paying for groceries and a check I wrote at home came back and and there was $5000 in the account. They kept me talking for one hour and waiting for them to come back to the phone.
 Last Thursday I initiated an ACH transfer to Metairie Bank and put in to move the bulk and they immediately put all the restrictions back and made me spend all day trying to get Metairie Bank say I have a bank account with them to send the money to and I already did the two amounts and linked my savings account to my checking at Etrade. They are still holding my money hostage.
 I can't spend checks or pay for food and it's been 8 weeks.
